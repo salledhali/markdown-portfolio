@@ -1,0 +1,3 @@
+- I love swimming
+- I like to eat pizza
+- ager to learn new things
